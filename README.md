@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Prachisingh18
-- 🌱 I’m currently learning Bachelor of technology in computer science and engineering
+- 🌱 I’m graduate in Bachelors of technology in computer science and engineering
 - 📫 How to reach me ...prachi655singh@gmail.com
 
 <!---
